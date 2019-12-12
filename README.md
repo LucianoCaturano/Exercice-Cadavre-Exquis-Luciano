@@ -8,3 +8,5 @@ Quel bonheur se dis alors Henry.
 Il n'aurait rien pu avaler d'autre
 
 Sur sa route il croisa un O'tacos, il entra et pris sa commande. Une salade, sauf que les caissiers l'ont regardés de travers car ils étaient habitués au gras. Il comprit que c'était une énième déception et sortit tout aussitôt.
+
+>Il fait au moins -8000 se disait-il, la neige lui arrivait au moins au genou et avancé était difficile
