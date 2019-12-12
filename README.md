@@ -7,3 +7,4 @@ Quel bonheur se dis alors Henry.
 >Quel froid, il faisait bien -10°, **Jean** avait vraiment envie d'une bonne soupe bien chaude!
 Il n'aurait rien pu avaler d'autre
 
+>Il fait au moins -8000 se disait-il, la neige lui arrivait au moins au genou et avancé était difficile
