@@ -7,3 +7,4 @@ Quel bonheur se dis alors Henry.
 >Quel froid, il faisait bien -10°, **Jean** avait vraiment envie d'une bonne soupe bien chaude!
 Il n'aurait rien pu avaler d'autre
 
+Sur sa route il croisa un O'tacos, il entra et pris sa commande. Une salade, sauf que les caissiers l'ont regardés de travers car ils étaient habitués au gras. Il comprit que c'était une énième déception et sortit tout aussitôt.
